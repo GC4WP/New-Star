@@ -1,0 +1,41 @@
+# 通讯录
+
+为了方便新星组成员之间互相联系，将组员个人信息汇总于此，以备查用。
+
+## 1. 034  CC  
+
+[CC麻油君 - 简书](https://www.jianshu.com/u/8f3a66debe08)  
+
+GitHub: https://github.com/mayo111
+
+zoom：liuyixin1989china@163.com
+
+手机：18868817962
+
+## 2. 234  其林  
+
+[其林儿 - 简书](https://www.jianshu.com/u/ff9e8a89b2dd)  
+
+GitHub: https://github.com/WangJane1030
+
+zoom：wangjie.jane1030@gmail.com
+
+## 3. 181  山地蓝 
+
+[简书-金鱼吊兰-181](https://www.jianshu.com/u/a492eaa98fd5)
+
+GitHub: https://github.com/resilience77
+
+zoom：914824437@qq.com
+
+手机：13717613500 
+
+## 4. 圈圈
+
+[好时光都该被宝贝_ - 简书](https://www.jianshu.com/u/fa976ba421c0)
+
+GitHub: 
+
+zoom：
+
+手机：
