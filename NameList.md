@@ -20,6 +20,8 @@ GitHub: https://github.com/WangJane1030
 
 zoom：wangjie.jane1030@gmail.com
 
+手机：18007173884
+
 ## 3. 181  山地蓝 
 
 [简书-金鱼吊兰-181](https://www.jianshu.com/u/a492eaa98fd5)
@@ -34,8 +36,8 @@ zoom：914824437@qq.com
 
 [好时光都该被宝贝_ - 简书](https://www.jianshu.com/u/fa976ba421c0)
 
-GitHub: 
+GitHub: https://github.com/liyy112
 
-zoom：
+zoom：2696137655@qq.com
 
-手机：
+手机：15764309697
